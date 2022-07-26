@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Darsan21p
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning BTech in computer science
+- 🌱 I’m currentlyworking as an associate software engineer
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me reach me on darsanmrkmn123@gmail.com
 
